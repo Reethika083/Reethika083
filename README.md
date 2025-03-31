@@ -1,3 +1,4 @@
+![logo](https://github.com/Reethika083/Reethika083/blob/main/Purple%20Modern%20Gaming%20Youtube%20Banner.png)
 <h1 align="center">Hi 👋, I'm REETHIKA</h1>
 <h3 align="center">Penultimate Student @R.M.K. ENGINEERING COLLEGE , INDIA</h3>
 
